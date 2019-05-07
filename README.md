@@ -1,0 +1,3 @@
+# literarische Ergüsse and crap ...
+
+Ist das Kunst oder kann das weg?
